@@ -1,4 +1,4 @@
-# trustfactor
+# Trust factor
 Different ways to increase trust factor on steam
 
 1. Reporting spam/scam comments on other steam profiles (Best ones are st4ck https://steamcommunity.com/id/St4ck , magic https://steamcommunity.com/id/magic_vs)
