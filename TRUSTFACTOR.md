@@ -7,7 +7,7 @@ Different ways to increase trust factor on steam
 
 3. Spending money on steam (Unclear on the amount)
 
-4. Leveling up your steam account a bunch (which is the best option as it combines options 3 and 4 if you buy csgo keys for the trading bots)
+4. Leveling up your steam account a bunch (which is the best option as it combines options 3 and 4 if you buy csgo keys for the trading bots) (I've used this trading bot a few times very reliable https://steamcommunity.com/id/LevelUpBot0/)
 
 5. Sayings nice things in game chat and not being racist
 
